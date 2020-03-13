@@ -1,2 +1,1 @@
-# Infinite-Bomber-by-Vabylator
-Nucelar gun!!!
+# BrutBlu-by-Vabylator
